@@ -33,8 +33,3 @@ I'm currently exploring the world of **Artificial Intelligence**, building smart
 ## 🌍 Other Passions
 
 I enjoy staying up to date with the latest technologies, **traveling** (even solo!), listening to music, and staying physically active.
-
----
-
-📫 **Get in Touch**  
-[LinkedIn](https://www.linkedin.com/in/eddy-armadhi) 
